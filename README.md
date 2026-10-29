@@ -41,7 +41,7 @@ I'm interested in opportunities in **IT Support, Network Operations, Systems Adm
 
 ## 🤝 Connect With Me
 
-- **LinkedIn:** https://linkedin.com/in/Imran-Mohamed
+- **LinkedIn:** www.linkedin.com/in/imran-mohamed-6b35b433b
 - **GitHub:** https://github.com/IM4-RD
 
 ---
